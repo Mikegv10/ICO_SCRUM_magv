@@ -1,2 +1,3 @@
 # ICO_SCRUM_jhc
-no se, hola?
+Miguel Angel Garcia Vilchis
+Cuenta 307106580
